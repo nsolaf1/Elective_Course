@@ -1,4 +1,7 @@
+https://docs.google.com/spreadsheets/d/18C8QIi-ujVZ8s9XN8ZTbi_U0I6Cw36BzV_Td5XrNmws/edit?usp=sharing
+
 # List of Topics for Diploma Dissertation
+
 
 ### (Список тем для дипломных проектов студентов 4 курса)
 
